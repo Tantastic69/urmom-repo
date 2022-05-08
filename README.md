@@ -1,2 +1,2 @@
 # Urmom
- fuck your mom.
+ fuck your mom!
